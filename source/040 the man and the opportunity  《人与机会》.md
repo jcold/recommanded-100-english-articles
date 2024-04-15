@@ -1,0 +1,11 @@
+美文原文
+
+The lack of opportunity is ever the excuse of a weak, vacillating mind. Opportunities! Every life is full of them. Every lesson in school or college is an opportunity. Every examination is a chance in life. Every businesstransaction is an opportunity-an opportunity to be polite, an opportunity to be manly, an opprtunity to behonest, an opprtunity to make friends. Every proof of confidence in you is a great opportunity. Every responsibility thrust upon your strength and your honor is priceless. Existence is the privilege of effort,andwhen that privilege is met like a man, opportunities to succeed along the line of your aptitude will come faster than you can use them.
+
+Young men and women, why do you stand here all the day idle? Was the land all occupied before you were born?Has the earth ceased to yield its increase? Are the seats all taken? The positions all filled? the chances all gone? are the resources of your country fully developed? Are the secrets of nature all mastered? Isthere no way in which you can utilize these passing moments to improve yourself or benefit another? Don't wait for your opportunity. Make it, make it as Napoleon made his in a hundred "impossible" situations. Make it, as all leaders of men , in war and in peace, have made their chaces of success. Make it, as every man must, who would accomplish anything worth the effort. Glolden opportunities are nothing to laziness, butindustry makes the commmonest chances golden.
+
+美文翻译
+
+意志脆弱优柔寡断的人,总是以缺乏机会为借口.机会!在每个人的生活当中,无处不在.学校里的每一节课都是机会.每一场考试都是人生的契机.每一次商务往来都是一次机会---一次礼貌待人的机会.一次果敢行事的机会.一次诚实守信的机会,一次广交朋友的机会.每一分对你的信任,对你都是一次莫大的机会.基于你的才干和声望而寄予你的每一份责任,都是无价的.生存是奋斗赋予的特权,而当你如男子汉一般邂逅那份殊荣时,一个个发挥你聪明才智,助你获取成功的机会便会接踵而至,令你迎接不暇.
+
+年轻人啊,为何你们整日裹足不前而虚掷光阴?难道在你们出生之前,每一寸土地都已被他人所占据?难道地球已不再繁衍生息?难道所有的席位都已另有归属?所有的职位都已人满为患? 所有的机会都一去不返?难道你国内的资源都已开发殆尽?难道大自然的奥秘都已了如指掌?难道你无法抓住转瞬即逝的时机来改善自我或者造福他人?切末株守机会.去创造它,正如拿破仑在无数次"绝"境中创造自己逢生的机会一样.去创造它,正如战争或和平年代的领袖们创造他们取得胜利的机会那样.去创造它,人人必须如此,任何人都能获得应有的回报.对于懒惰来讲,天赐良机也会化为乌有;对于勤奋而言,即使是微不足道的机会,也会变得金光闪闪!
